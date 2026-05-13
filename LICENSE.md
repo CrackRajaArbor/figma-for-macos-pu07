@@ -1,4 +1,4 @@
-# 
+# Figma for macOS rare Plugin: masking tools & batch processing is the best Figma for macOS plugin, featuring masking tools and batch processing. Safe, efficient, and optimized for
 
 
 
